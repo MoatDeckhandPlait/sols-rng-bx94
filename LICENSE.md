@@ -1,4 +1,4 @@
-
+sol's rng Scripts secure is the best sol's rng Script, featuring god mode and speed. Safe and powerful for all your needs.
 
 
 
